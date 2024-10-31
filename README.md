@@ -1,5 +1,5 @@
-**[@infradragon](https://discord.com/users/580483129161154610)** everywhere
+**[@infradragon](https://infradragon.com/contact)** everywhere
 
-**[(づ｡◕‿‿◕｡)づ](https://infradragon.com/)**
+**[(づ｡◕‿‿◕｡)づ](https://www.windows93.net/)**
 
 garn47 fanatic and the real John Pork (confirmed by the NSA)
