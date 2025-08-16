@@ -1,5 +1,4 @@
 **[@infradragon](https://infradragon.com/contact)** everywhere
-
-**[(づ｡◕‿‿◕｡)づ](https://www.windows93.net/)**
+https://gitlab.com/infradragon7
 
 garn47 fanatic and the real John Pork (confirmed by the NSA)
